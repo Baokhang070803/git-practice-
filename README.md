@@ -1,4 +1,4 @@
-Võ Trần Hoàng Bảo khang_224124 (main) (chỉnh sửa đại đáinqwkdmpasd)
+Võ Trần Hoàng Bảo khang_224124 (main)
     game, anime, manga  
     Web, unity      
 
